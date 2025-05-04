@@ -17,7 +17,13 @@ Got a project on:
 Hit me up! Let's innovate together.
 
 ## 📡 Where to Find Me
-📍 **𝕏 (Twitter):** [@shuku_omhlophe](https://twitter.com/shuku_omhlophe)
+📍 **𝕏:** [@sabzalikho](https://x.com/sabzalikho)
+📍 **Facebook:** [Sabelo Wandile Shangase](https://facebook.com/sabzalikho)
+📍 **Instagram:** [@sabzalikho](https://instagram.com/sabzalikho)
+📍 **Threads:** [@sabzalikho](https://threads.com/@sabzalikho)
+📍 **YouTube:** [Sabelo Wandile Shangase](https://youtube.com/@sabzalikho)
+📍 **TikTok:** [@sabzalikho](https://tiktok.com/@sabzalikho)
+📍 **Reddit:** [@sabeloshangase](https://reddit.com/user/sabeloshangase)
 
 ## ⚡ Fun Fact
 In 2010, someone bought **two pizzas** for **10,000 BTC** 🍕—today, that’s worth **millions**!
